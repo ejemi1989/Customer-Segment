@@ -1,19 +1,4 @@
 
-Search
-Write
-
-Ayodejioladimeji
-Get unlimited access to the best of Medium for less than $1/week.
-Become a member
-
-
-Unsupervised Learning Project: Creating Customer Segments
-Ayodejioladimeji
-Ayodejioladimeji
-
-16 min read
-·
-Just now
 
 
 
